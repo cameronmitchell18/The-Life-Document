@@ -15,6 +15,7 @@ This document is inspired by [Merlin Mann](https://hotdogsladies.omg.lol/) and h
 - If you're going to do something, you may as well work hard at it and give it your best effort.
 - Working is not a burden, it is a gift. 
 - Doing things that are hard is good for the mind, body, and soul. 
+- A good dog will bring you some of the biggest smiles but also, some of the greatest hurt.
 
 ## Podcasts I Enjoy
 - *Reconcilable Differences* (Hosted by: Merlin Mann and John Siracusa)
